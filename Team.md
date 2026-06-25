@@ -8,7 +8,7 @@
 | CINDY NKRUMAH QUAINOO | 22262649 | cnquainoo@st.ug.edu.gh | +233 502888287 | Ama-cindy 12 |
 | SAMUELLA NHYIRA NYARKO | 22382869 | Snnyarko001@st.ug.edu.gh | +233 592570864 | Samuella-12 |
 | TEMILOLUWA DORCAS EBOETSE | 22389337 | tdeboetse@st.ug.edu.gh | +233 502896854 | TEboetse |
-| AIDOO ROBERT KWABENA | 22337992 | rkaidoo003@st.ug.edu.gh | +233 505749767 | Aidoo Robert Kwabena |
+| AIDOO ROBERT KWABENA | 22337992 | rkaidoo003@st.ug.edu.gh | +233 596220114 | Aidoo Robert Kwabena |
 | FELIX AKWESI AGYEI | 10895149 | agyeifelix425@gmail.com | +233 546798932 | agyeifelix |
 | OSEI EVANS | 22411279 | eosei480@st.ug.edu.gh | +233 201461363 | Evansosei |
 | ANKRAH LIGHT KWESI | 22309786 | kwasigalight@gmail.com |+233 50 573 2021 | kekeli-24 |
