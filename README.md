@@ -1,4 +1,4 @@
-# PulseCare-Hospital-Management-System
+# PluseCare-Hospital-Management-System
 A TechCare Team project 
 # PluseCare 
 **Course:** DCIT 208  
